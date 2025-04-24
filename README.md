@@ -1,5 +1,5 @@
 # SNSなどいろいろ
-YouTube : [https://youtube.com/@TheHungryDonguri](https://youtube.com/@TheHungryDonguri)  
+YouTube : [https://youtube.com/@HungryDonguri](https://youtube.com/@HungryDonguri)  
 Github : [https://github.com/HungryDonguri](https://github.com/HungryDonguri)  
 X : [https://x.com/HungryDonguri](https://x.com/HungryDonguri)  
 Discordサーバー : [https://discord.gg/usjrwGXFZp](https://discord.gg/usjrwGXFZp)  
